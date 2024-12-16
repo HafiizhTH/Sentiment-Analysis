@@ -1,0 +1,1 @@
+Sentimen youtube "Penyebab Kegagalan Adopsi Sistem Pendidikan Finlandia di Indonesia" CC: Ferry Irwandi
